@@ -26,4 +26,4 @@
 
 **Anlatımlı Forum Konusu İçin :**
 
-![](https://www.mmotutkunlari.com/konu/discord-rpc-tam-sistem-vs2019-ve-%C3%BCzeri-i%C3%A7in.18644/)
+https://www.mmotutkunlari.com/konu/discord-rpc-tam-sistem-vs2019-ve-%C3%BCzeri-i%C3%A7in.18644/
