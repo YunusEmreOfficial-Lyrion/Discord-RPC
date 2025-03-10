@@ -22,3 +22,8 @@
 **Örnek resmimin adı image1**
 
 ![](https://puu.sh/F0UIr/e48eed2ceb.png)
+
+
+**Anlatımlı Forum Konusu İçin :**
+
+![](https://www.mmotutkunlari.com/konu/discord-rpc-tam-sistem-vs2019-ve-%C3%BCzeri-i%C3%A7in.18644/)
